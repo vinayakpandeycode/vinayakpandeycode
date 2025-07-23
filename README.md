@@ -36,9 +36,8 @@
 
 ### 🏆 Achievements & Badges
 
-![Image](https://github.com/user-attachments/assets/162ed9f8-5ee9-4f60-8221-de37c88a7f25)
-
-![Image](https://github.com/user-attachments/assets/e9d43f6a-7db6-4f89-ad21-2ab650fd93e4)
+![Image](https://github.com/user-attachments/assets/c20dd437-d297-4275-9ca8-b34fe9bdcc6e)
+![Image](https://github.com/user-attachments/assets/f0f8a9d9-4fa4-4af4-b871-84f7c7272852)
 
 ### 🔥 Motto
 
